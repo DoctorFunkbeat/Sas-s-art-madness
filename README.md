@@ -1,3 +1,11 @@
+# HAPPY BDAY KOKORO WE LOVE YOUUU /P
+
+<img width="3024" height="4032" alt="IMG_6914" src="https://github.com/user-attachments/assets/9db4aecc-e78d-4622-a68b-f5b88c78418f" />
+
+
+
+
+
 # Gift for yuki! puppysune is so cute omg
 
 <img width="3024" height="4032" alt="image" src="https://github.com/user-attachments/assets/f9dd8a99-d129-4501-b295-3bc9d7e53412" />
